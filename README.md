@@ -1,0 +1,3 @@
+LINK DEL VIDEO: 
+- https://udlaec-my.sharepoint.com/:v:/g/personal/sebastian_vallejo_guilcamaigua_udla_edu_ec/Ea5MVaCUlzFKiQcnNTOSrDEB9CaULbTYZ1mjPqrd5nCaCw?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=06I3V7
+- 
